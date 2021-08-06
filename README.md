@@ -1,0 +1,4 @@
+- hi bae
+- toi ten nhut hoai 
+- sinh ngay 22 01 2003
+- rat vui duoc lam quen voi em !!
